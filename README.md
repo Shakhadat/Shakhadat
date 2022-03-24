@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Shakhadat
 - 👀 I’m interested in coding, cooking, playing with my children.
-- 🌱 I’m currently learning front-end developer
+- 🌱 I’m currently working as a front-end developer
 - 💞️ I’m looking to collaborate on new big Project holders
 - 📫 How to reach me telegram: @KumushbibimHamidam ; mail: Shahodatbonu95@mail.ru ;
 
